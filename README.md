@@ -2,9 +2,9 @@
 
 ### About Me
 
-Name: Roshy Sarabhai  
-Student number:s3858023  
-Email id: roshy.sarabhai@gmail.com
+**Name**: Roshy Sarabhai  
+**Student Number**: s3858023  
+**Email id**: roshy.sarabhai@gmail.com
 An investment advisor by profession, have always loved playing with numbers, stock markets etc.  
 Born in Mumbai, India and have been down under since 2016 with my wife Neha and son Ahaan.  
 I love travelling, photography and an absolute foodie.  
