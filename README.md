@@ -17,6 +17,8 @@ As a child, I have had immense passion for technology and was always fascinated 
 
 ### Ideal Job
 
+**Link** : https://www.seek.com.au/job/41157161?type=standard#searchRequestToken=e639c67e-0cc0-4f94-aa63-abdb18ac42cb
+
 This position is about the role an Account Executive. This roles appeals to me as it is about managing customer relationships. I have had over 14 years of experience in managing customer relationship in banking and financial sector.
 
 One major skill required in this role is of understanding of information technology and its various streams.
