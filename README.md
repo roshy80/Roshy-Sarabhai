@@ -70,7 +70,7 @@ My personality test indicates I am 48% agreeable. I guess that a reasonable perc
 I would make sure my teammates possess qualities which I I lack so we can have a balance in the team.
 
  
- ### Project Idea
+### Project Idea
  
  **OverView**
  
