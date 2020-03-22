@@ -46,6 +46,6 @@ Doing this course will give me the perfect platform to understand fundamentals o
 
  Myers-Briggs test :
  
- ![Job Description!](Job .png)
+ ![Myers-Briggs!](Myers-Briggs.png)
  
  
