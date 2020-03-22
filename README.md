@@ -56,6 +56,20 @@ Doing this course will give me the perfect platform to understand fundamentals o
  
  ![Big Five Personality Test!](Big Five Personality Test.png)
  
+ **What do results of these tests mean to me!**
+ 
+ Gives me a fair introspection in my work and over all personality. Great indication as to where I can improve in my over all working    behavior.
+
+
+**How do you think these results may influence your behaviour in a team?**
+
+My personality test indicates I am 48% agreeable. I guess that a reasonable percentage to work in a team. However I would like to move that upwards to atleast 70% so that the team can feel totally comfortable in sharing details and suggestions with me. 
+
+**How should you take this into account when forming a team?**
+
+I would make sure my teammates possess qualities which I I lack so we can have a balance in the team.
+
+ 
  
  
  
