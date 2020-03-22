@@ -42,4 +42,10 @@ The skills I have for this role:
 Doing this course will give me the perfect platform to understand fundamentals of IT. 
 
 
+### Personal Profile
 
+ Myers-Briggs test :
+ 
+ ![Job Description!](Job .png)
+ 
+ 
