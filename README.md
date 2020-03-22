@@ -48,4 +48,15 @@ Doing this course will give me the perfect platform to understand fundamentals o
  
  ![Myers-Briggs!](Myers-Briggs.png)
  
+ Online Learing Style Test :
+ 
+ ![Online Learning Style Test!](Eduacation planner.png)
+ 
+ Big Five Personality Test :
+ 
+ ![Big Five Personality Test!](Big Five Personality Test.png)
+ 
+ 
+ 
+ 
  
